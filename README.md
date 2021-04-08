@@ -1,7 +1,7 @@
 # FlyGui
 
-Made by Tolga#4475
+Tolgacxk = Designer&Scripter
 
-Made for Eraycxk
+Eraycxk = Founder
 
 https://discord.gg/zxCR86q5XR
